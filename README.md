@@ -20,3 +20,4 @@
 4. **極限反殺**：立刻狂點 **【拍牌！】** 按鈕，千萬別當最後一個！
 
 祝你好運，成為真正的撲克牌大師吧！💪💪💪💪💪
+<img width="937" height="807" alt="image" src="https://github.com/user-attachments/assets/d3e75eb4-39f6-46cb-9c4c-2fddd4cd248e" />
